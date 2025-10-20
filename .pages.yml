@@ -40,6 +40,9 @@ content:
         label: Preview image
         type: image
         description: Image used in the social preview on social networks (e.g. Facebook, Twitter...)
+      - name: theme
+        label: Theme
+        type: string
   - name: about
     label: About Page
     type: file
