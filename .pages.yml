@@ -40,3 +40,15 @@ content:
         label: Preview image
         type: image
         description: Image used in the social preview on social networks (e.g. Facebook, Twitter...)
+  - name: about
+    label: About Page
+    type: file
+    path: about.markdown
+    format: yaml-frontmatter
+    fields:
+      - name: title
+        label: Page Title
+        type: string
+      - name: body
+        label: Content
+        type: rich-text
