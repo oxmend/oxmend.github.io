@@ -1,7 +1,7 @@
 ---
 published: true
 date: 2025-03-23
-title: 25 March • What’s happening in the West Bank?
+title: "25 March • Dror Etkes (Kerem Navot): What’s happening in the West Bank?"
 ---
 Settlement expert Dror Etkes speaks at a Yachad event at Oxford Jewish Congregation, Tuesday 25 March, 7.30pm
 
