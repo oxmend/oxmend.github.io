@@ -1,7 +1,7 @@
 ---
 published: true
 date: 2025-06-18
-title: 18 June • Dr Ferit Belder (Oxford) on identity-security relations in politics
+title: "18 June • Dr Ferit Belder (Oxford): Identity-security relations in politics"
 ---
 How does identity influence politics and international conflict? What happens when identities feel threatened or insecure?
 
