@@ -1,7 +1,8 @@
 ---
 published: true
 date: 2025-10-24
-title: "2 November • Aziz Abu Sarah and Dr Elad Uzan: Ending the never-ending war"
+title: "2 November • Aziz Abu Sarah and Dr Elad Uzan (Oxford): Ending the
+  never-ending war"
 ---
 Aziz Abu Sarah, a Palestinian peacebuilder, joins Dr. Elad Uzan, an Oxford philosopher, for a conversation on the true meaning of ending a "never-ending conflict", exploring truth, justice, empathy, risks and the courage to imagine peace together.
 
