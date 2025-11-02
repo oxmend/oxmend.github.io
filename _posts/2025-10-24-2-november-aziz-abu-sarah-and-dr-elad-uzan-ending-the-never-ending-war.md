@@ -8,7 +8,7 @@ Aziz Abu Sarah, a Palestinian peacebuilder, joins Dr. Elad Uzan, an Oxford philo
 
 🗓️ Sunday, 2 November
 
-🕢 17:15 (refreshments from 17:00)
+🕢 17:15 (doors open at 17:00)
 
 📍New College, Holywell St, Oxford, OX1 3BN
 
