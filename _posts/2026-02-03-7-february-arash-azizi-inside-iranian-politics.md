@@ -5,7 +5,7 @@ title: 7 February • Arash Azizi • ‘Inside Iranian politics’
 ---
 OxMEND is pleased to host a talk and Q&A session with Arash Azizi this Saturday.
 
-Registration and location: [https://forms.gle/yNSJppYKXpgssh978](https://forms.gle/yNSJppYKXpgssh978)  
+Click [here](https://forms.gle/yNSJppYKXpgssh978) for the location and registration.  
 🗓️ Saturday 7 February  
 🕔 19.30
 
