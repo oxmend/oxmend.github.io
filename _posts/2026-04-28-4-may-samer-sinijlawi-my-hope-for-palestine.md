@@ -1,0 +1,21 @@
+---
+published: true
+date: 2026-04-28
+title: 4 May • Samer Sinijlawi • ‘My hope for Palestine’
+---
+New College, Oxford • 5 pm • Monday 4 May (second week)
+
+Register [here](https://forms.gle/W7rbVvcH4MKpJSE27)!
+
+Samer Sinijlawi is a reformist member of Palestine’s Fatah party.
+
+Nadia Jamil, senior researcher at the Faculty of Asian and Middle Eastern Studies, will interview him.
+
+Not in Oxford that day? Our partners at We, Democracy are hosting Sinijlawi in London [on 3 May](https://www.tickettailor.com/events/wedemocracy/2103786), where he’ll be joined by Josh Glancy of *The Times*.
+
+See also:
+
+-  an [interview](https://www.jewishnews.co.uk/a-new-political-current-sinijlawi-on-the-rise-of-pragmatic-palestinian-leaders/) to *Jewish News*,
+- [‘My hope for Palestine’](https://www.theatlantic.com/magazine/archive/2024/12/israel-palestine-conflict-resolution-future/680389/), 4 November,*The Atlantic*, and
+- [‘Mahmoud Abbas must go’](https://www.nytimes.com/2023/12/21/opinion/palestine-leadership-war-israel.html), 23 December 2023, *New York Times*.
+
