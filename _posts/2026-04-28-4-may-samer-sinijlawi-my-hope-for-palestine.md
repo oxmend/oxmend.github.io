@@ -15,7 +15,7 @@ Not in Oxford that day? Our partners at We, Democracy are hosting Sinijlawi in L
 
 See also:
 
--  an [interview](https://www.jewishnews.co.uk/a-new-political-current-sinijlawi-on-the-rise-of-pragmatic-palestinian-leaders/) to *Jewish News*,
-- [‘My hope for Palestine’](https://www.theatlantic.com/magazine/archive/2024/12/israel-palestine-conflict-resolution-future/680389/), 4 November,*The Atlantic*, and
+- an [interview](https://www.jewishnews.co.uk/a-new-political-current-sinijlawi-on-the-rise-of-pragmatic-palestinian-leaders/) to *Jewish News*,
+- [‘My hope for Palestine’](https://www.theatlantic.com/magazine/archive/2024/12/israel-palestine-conflict-resolution-future/680389/), 4 November, *The Atlantic*, and
 - [‘Mahmoud Abbas must go’](https://www.nytimes.com/2023/12/21/opinion/palestine-leadership-war-israel.html), 23 December 2023, *New York Times*.
 
