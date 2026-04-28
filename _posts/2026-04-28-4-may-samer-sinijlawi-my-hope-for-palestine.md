@@ -9,7 +9,7 @@ Register [here](https://forms.gle/W7rbVvcH4MKpJSE27)!
 
 Samer Sinijlawi is a reformist member of Palestine’s Fatah party. He is a Palestinian Jerusalemite and founding chairman of the Jerusalem Development Fund. He holds degrees from Birzeit University and the Hebrew University. He spent five teenaged years in Israeli gaol.
 
-Sinijlawi has led youth mobilisation and worked on Fatah’s relations with Israel and the international community. He advocates reform, democracy and Palestinian–Israeli coexistence.
+Sinijlawi has led youth mobilisation and worked on relations with Israel and the international community. He advocates reform, democracy and Palestinian–Israeli coexistence.
 
 Often described as a ‘leader of the opposition’, Sinijlawi directly addresses both Palestinian and Israeli audiences. He has criticised Hamas and corruption in the Palestinian authority.
 
