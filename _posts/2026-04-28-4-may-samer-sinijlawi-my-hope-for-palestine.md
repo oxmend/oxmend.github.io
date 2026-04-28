@@ -11,7 +11,7 @@ Samer Sinijlawi is a reformist member of Palestine’s Fatah party. He is a Pale
 
 Sinijlawi has led youth mobilisation and worked on relations with Israel and the international community. He advocates reform, democracy and Palestinian–Israeli coexistence.
 
-Often described as a ‘leader of the opposition’, Sinijlawi directly addresses both Palestinian and Israeli audiences. He has criticised Hamas and corruption in the Palestinian authority.
+Often described as a ‘leader of the opposition’, Sinijlawi directly addresses both Palestinian and Israeli audiences. He has criticised Hamas and corruption in the Palestinian Authority.
 
 Nadia Jamil, senior researcher at the Faculty of Asian and Middle Eastern Studies, will interview him.
 
