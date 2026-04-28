@@ -13,7 +13,7 @@ Sinijlawi has led youth mobilisation and worked on relations with Israel and the
 
 Often described as a ‘leader of the opposition’, Sinijlawi directly addresses both Palestinian and Israeli audiences. He has criticised Hamas and corruption in the Palestinian Authority.
 
-Nadia Jamil, senior researcher at the Faculty of Asian and Middle Eastern Studies, will interview him. She is also a Palestinian Jerusalemite. Nadia’s research has focused on early Arabian poetry and Norman Sicily. Her current research concerns the foundations of multifaith coexistence in Norman and Hohenstaufen Sicily. She also teaches Arabic for the Faculty of Oriental Studies.
+Oxford’s Dr Nadia Jamil (Faculty of Asian and Middle Eastern Studies), a Palestinian Jerusalemite, will interview Sinijlawi. Her research concerns early Arabian poetry and Norman Sicily. Her current work focuses on the foundations of multifaith coexistence in Norman and Hohenstaufen Sicily. She also teaches Arabic at the Faculty of Oriental Studies.
 
 Not in Oxford that day? Our partners at We, Democracy are hosting Sinijlawi in London [on 3 May](https://www.tickettailor.com/events/wedemocracy/2103786), where he’ll be joined by Josh Glancy of *The Times*.
 
